@@ -1,7 +1,3 @@
-It looks great! Here's a slightly refined version to enhance clarity and flow: 
-
---- 
-
 Hi, I’m @KanyDaniels, an artist passionate about creating music that elevates and emotionally connects with people. 
 
 - 👀 I’m interested in merging **Pop, Hip-Hop, and R&B** in innovative ways, while exploring the intersection of **music** and **technology**,
